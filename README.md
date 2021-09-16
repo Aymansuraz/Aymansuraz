@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Aymansuraz
 - 👀 I’m interested in Coding Science & Demonlogy
 - 🌱 I’m currently learning   Coding 
-- 💞️ I’m looking to collaborate on Work 
+- 💞️ I’m looking to collaborate on Work and Friendship
 - 📫 How to reach me  Send me a message on discord, My user is glitched#2921
 
 <!---
